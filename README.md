@@ -1,4 +1,4 @@
-<img src=lacedivider.png width="800">
+<img src=lacedivider.png width="900">
 ## *𝚑𝚎𝚕𝚕𝚘~*
 
 ![alt text width="1000" height=5"](lacedivider.png)
