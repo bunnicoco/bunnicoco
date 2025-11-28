@@ -3,13 +3,16 @@
 ## *𝚑𝚎𝚕𝚕𝚘~*
 
 # ![](https://komarev.com/ghpvc/?username=bunnicoco&label=hoppers!&color=0e0e14)
-^view counter :3
+^view counter :3 (may be a bit over)
 
 ![alt text](kaomoji1.gif)
 
 <p align="center">
   <img width="522" height="522" alt="image" src="https://github.com/user-attachments/assets/75b73458-466b-42f7-bfc5-274eb2a8654b" />
 </p>
+
+- hello! if you see me on pontown, please feel free to interact!
+- <---- sign my atabook!
 
 <img src=lacedividerbottom.png width="900">
 
