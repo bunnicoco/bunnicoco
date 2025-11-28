@@ -1,4 +1,4 @@
-<img src=lacetop.png width="900">
+<img lacedivider-Picsart-AiImageEnhancer.png width="900">
 
 ## *𝚑𝚎𝚕𝚕𝚘~*
 
@@ -14,5 +14,5 @@
 - 𝚑𝚎𝚕𝚕𝚘! 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚘𝚗 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝!
 - <---- (𝚕𝚒𝚗𝚔𝚎𝚍) 𝚜𝚒𝚐𝚗 𝚖𝚢 𝚊𝚝𝚊𝚋𝚘𝚘𝚔!
 
-<img src=lacebottom.png width="900">
+<img src=lacedividerbottom-Picsart-AiImageEnhancer.png width="900">
 
