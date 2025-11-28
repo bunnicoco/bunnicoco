@@ -1,6 +1,6 @@
 <img src=lacedivider-Picsart-AiImageEnhancer.png width="900">
 
-## *𝚑𝚎𝚕𝚕𝚘~*
+## *𝚑𝚎𝚕𝚕𝚘 ~*
 
 # ![](https://komarev.com/ghpvc/?username=bunnicoco&label=hoppers!&color=0e0e14)
  ^ ${\textsf{\color{#e4c1a3}𝚟𝚒𝚎𝚠 𝚌𝚘𝚞𝚗𝚝𝚎𝚛 :𝟹 (𝚖𝚊𝚢 𝚋𝚎 𝚊 𝚋𝚒𝚝 𝚘𝚟𝚎𝚛)}}$!
