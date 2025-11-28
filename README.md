@@ -3,7 +3,7 @@
 ## *𝚑𝚎𝚕𝚕𝚘~*
 
 # ![](https://komarev.com/ghpvc/?username=bunnicoco&label=hoppers!&color=0e0e14)
-^view counter :3 (may be a bit over)
+^ 𝚟𝚒𝚎𝚠 𝚌𝚘𝚞𝚗𝚝𝚎𝚛 :𝟹 (𝚖𝚊𝚢 𝚋𝚎 𝚊 𝚋𝚒𝚝 𝚘𝚟𝚎𝚛)
 
 ![alt text](kaomoji1.gif)
 
@@ -11,8 +11,8 @@
   <img width="522" height="522" alt="image" src="https://github.com/user-attachments/assets/75b73458-466b-42f7-bfc5-274eb2a8654b" />
 </p>
 
-- hello! if you see me on pontown, please feel free to interact!
-- <---- sign my atabook!
+- 𝚑𝚎𝚕𝚕𝚘! 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚘𝚗 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝!
+- <---- (𝚕𝚒𝚗𝚔𝚎𝚍) 𝚜𝚒𝚐𝚗 𝚖𝚢 𝚊𝚝𝚊𝚋𝚘𝚘𝚔!
 
 <img src=lacedividerbottom.png width="900">
 
