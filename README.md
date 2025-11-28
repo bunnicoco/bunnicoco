@@ -3,7 +3,7 @@
 ## *𝚑𝚎𝚕𝚕𝚘~*
 
 # ![](https://komarev.com/ghpvc/?username=bunnicoco&label=hoppers!&color=0e0e14)
- ^ ${\textsf{\color{#997f6b}𝚟𝚒𝚎𝚠 𝚌𝚘𝚞𝚗𝚝𝚎𝚛 :𝟹 (𝚖𝚊𝚢 𝚋𝚎 𝚊 𝚋𝚒𝚝 𝚘𝚟𝚎𝚛)}}$!
+ ^ ${\textsf{\color{#e4c1a3}𝚟𝚒𝚎𝚠 𝚌𝚘𝚞𝚗𝚝𝚎𝚛 :𝟹 (𝚖𝚊𝚢 𝚋𝚎 𝚊 𝚋𝚒𝚝 𝚘𝚟𝚎𝚛)}}$!
 
 ![alt text](kaomoji1.gif)
 
@@ -12,7 +12,7 @@
 </p>
 
 - 𝚑𝚎𝚕𝚕𝚘! 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎 𝚘𝚗 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝!
-- <---- (𝚕𝚒𝚗𝚔𝚎𝚍) 𝚜𝚒𝚐𝚗 𝚖𝚢 ${\textsf{\color{#997f6b}𝚊𝚝𝚊𝚋𝚘𝚘𝚔}}$!
+- <---- (𝚕𝚒𝚗𝚔𝚎𝚍) 𝚜𝚒𝚐𝚗 𝚖𝚢 ${\textsf{\color{#e4c1a3}𝚊𝚝𝚊𝚋𝚘𝚘𝚔}}$!
 
 <img src=lacedividerbottom-Picsart-AiImageEnhancer.png width="900">
 
