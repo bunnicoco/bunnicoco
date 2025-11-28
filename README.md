@@ -2,5 +2,5 @@
 # ![](https://komarev.com/ghpvc/?username=your-github-username&label=views+:3&color=f2f0ed)
 
 <p align="center">
-  <![alt text](chibibunnynobg.png)>
+  ![alt text](chibibunnynobg.png)
 </p>
