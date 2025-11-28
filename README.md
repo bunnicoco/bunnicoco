@@ -2,7 +2,7 @@
 
 ## *𝚑𝚎𝚕𝚕𝚘~*
 
-# ![](https://komarev.com/ghpvc/?username=bunnicoco=views+:3&color=0e0e14)
+# ![](https://komarev.com/ghpvc/?username=bunnicoco&label=views+:3&color=0e0e14)
 
 ![alt text](kaomoji1.gif)
 
