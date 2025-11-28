@@ -1,6 +1,6 @@
 ## *𝚑𝚎𝚕𝚕𝚘~*
 
-![alt text width="522" height="1000"](lacedivider.png)
+![alt text width="1000" height=5"](lacedivider.png)
 
 # ![](https://komarev.com/ghpvc/?username=your-github-username&label=views+:3&color=0e0e14)
 
